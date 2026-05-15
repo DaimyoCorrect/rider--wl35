@@ -1,4 +1,4 @@
-# 
+# smart JetBrains Rider for PC | JetBrains Rider for Windows Integration | collaboration-tools + database-tools offers the most advanced JetBrains Rider for PC | JetBrains Rider for
 
 
 
